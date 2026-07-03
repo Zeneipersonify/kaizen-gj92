@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with kaizen stealth Script, the #1 Script. Includes aimbot and invisibility for unbeatable performance.
 
 
 
